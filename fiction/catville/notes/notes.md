@@ -1,3 +1,6 @@
+## Original free write
+Thinking more about RPG ideas, the player could be dropped into a halloween Transylvanian type town run by cats. There could be cat witches and warriors and the town could be run by a crazy cat prince. They don't work well together and are always fighting with each other. You get captured by some guards and get lead to the cat prince. He then gives you a quest: "Steal all the eggs from this town and make me an egg banquet and I shall let you leave"! You get released from the castle, but find that there is no easy way to leave this town. You have to decide whether to do as he says or find another way to leave or decide to stay for the rest of your life. The inhabitants know of the prince's strange demands, so they aren't fazed by the. Some will help you, but most will not. You will have to learn to use the rifts between town's folk to get more eggs or make them like you so they help you escape or adopt you as one of their own. Town inhabitants: The royal guard, the witch, the prince, the cobbler, the shepard, the farmer, and others. (the mother, the father, the three children)
+
 ## Basic ideas
 
 * The story might take place in a Halloween fantasy town with a Transylvania style castle.
