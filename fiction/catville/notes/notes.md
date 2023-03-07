@@ -45,3 +45,79 @@ The scene where Jon tries to escape but continually fails to. (emotions; fear, d
 The scene where Jon meets a thief in the town. The thief helps him stay safe from the storm and teaches him about stealing and how to survive homeless. (smells and cat culture)
 
 The scene where Jon tries to collect eggs. He collects them from several cat people before before getting caught by the baker. Jon feels guilty and the baker brings Jon in and helps him with food and shelter. (relief, guilt, repentance)
+
+## More key points from the book
+The scenes where Jon meets the other villagers.
+* Jon meets Smudge when Bandit asks Jon to go buy firewood from the lumberjack.
+* Jon meets Bella when Bandit asks Jon to go get medicine from the apothecary.
+* Jon meets Ivy when Bandit asks Jon to go trade bread for meat and furs.
+* Jon gets turned away my Midnight (the inn keeper) for not having money and looking strange.
+* Jon meets Athena when he goes to collect wheat (or other grains?) for Bandit.
+
+## Characters
+McMeow (real name: Rain): The crazy cat prince. He likes to give people near impossible tasks and watch as they struggle to accomplish his orders.
+Moose: The cat prince's loyal royal guard.
+Titan: A thief by trade. He is always looking for new ways to get away with stealing.
+Bandit: "Bandit the baker" is his nickname. He is a really big cat and runs a bakery in town. He's trustworthy and kind. He has many friends.
+Bella: She's an apothecary (prepares and sells medications and drugs).
+Ivy: She's a hunter and trapper.
+Smudge: He's a lumberjack.
+Midnight: He's an inn keeper.
+Athena: She's a farmer. She has (6?) children.
+Wise old man/women? Acts as a judge to mediate issues? Could come in at the end to ease the tension between the villagers and the prince. This character might come in sooner to help mediate other conflicts as well.
+
+## Cat names
+Tomtom
+Mittens
+Patches
+Tiger
+Leo
+Whiskers
+Felix
+Oscar
+Smudge
+Fluffy
+Angel
+Lady
+Lucky
+Luna
+Max
+Lola
+Bella
+Milo
+Ginger
+Lucifer
+Zeus
+Hercules
+Titan
+Athena
+Bandit
+Princess
+Socks
+Vera
+Duke
+Bear
+Coco
+Winston
+Penny
+Sasha
+River
+Ivy
+Midnight
+Onyx
+Daisy
+Jade
+Ruby
+Badger
+Moose
+Rain
+
+## Details to add
+* What did Jon do for work before being teleported to this fantasy land?
+* What do each of the cats look like? Should do research on types of cats and how they look.
+* Do research on cat behavior/"culture" and add notes here.
+* Do research on medieval towns; maybe some research into Transylvania? I should work on the castle and town description.
+* How big is this town? Will Jon meet all the villagers or just some of them?
+* One thing that I had in the original free write was that the town's cats are always fighting amongst themselves. I think that would add nice bits of content/story as Jon helps the villagers resolve their conflicts. What are the conflicts the villagers have?
+* What are the names of the businesses the cats run?
+* Are there stables and horses?
