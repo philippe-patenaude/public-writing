@@ -22,9 +22,15 @@ Jon stumbles to his feet and starts to run. He hears the leaves and branches rus
 
 The next thing he sees is a cat person brandishing a sword. The cat has black fur and two glowing eyes. He's wearing a tunic with a medieval insignia. Jon expected to be run through with the sword, but he was his own obstacle. Distracted by the glance back, Jon tripped over a stick and landed on the ground with a loud thud.
 
-The next thing he knew, the cat person was on him and tying his hands with a rough thick rope.
+The next thing he knew, the cat person was on him and tying his hands with a rough thick rope. This cat person was strong and no struggling that Jon did slowed it down. The cat person then lifted Jon onto his feet effortlessly and pushed him through the woods back in the direction of town.
 
-<Jon gets brought to the castle. He gets presented to McMeow and gets the quest to steal all the eggs from the town.>
+They walked for a while before exiting the woods at the edge of town. The cat person then lead him through town. The buildings in town were very densely packed with small alleyways between stretches of buildings. There were cat people going about their night that were staring at him as he was lead through town. It was embarrassing and Jon feared for his life. What where these cat people going to do to him?
+
+He was lead to the castle. The castle felt even bigger when standing in front of the gate. The gate was open and he was lead up the stairs and to the keep. The doors to the keep were opened and he was lead into a large throne room. At the back of the throne room sat a regal cat. It wore a jewel studded gold crown on it's head and a red cape. It also wore a golden sash around its waist. It gave a grin. A mean grin. An evil grin.
+
+Jon is lead up to this regal cat and forced onto his knees. The regal cat begins to speak "a foreigner has come to my kingdom. What evil do you plan to do?" Jon was taken aback that the cats can speak near perfect english. He was stunned for a minute unsure what to reply. "Cat got your tongue? Ha ha ha!" said the regal cat. "I know you can speak. Moose here heard you talking to yourself" he said while pointing to the cat that captured him.
+
+"I don't know what's going on" said Jon in a poor attempt to explain that he is innocent. "Ha!" said the regal cat. "How's this, I, McMeow, will give you a little challenge. If you can complete it, I'll let you go free." Jon figured he didn't have much of a choice, so he nodded along. "I need you to collect all the eggs in town and bring them to me. Don't leave a single egg in anybody's home. Then, and only then, will I let you free" said McMeow. "Oh boy" thought Jon. That can't be a good challenge. "Now be gone" said McMeow with a wave of his hand.
 
 ## Part 3
 Jon is lead to the castle entrance. The guard stays behind as Jon steps down the stairs. "What am I to do? I don't really have to do as he says, do I?" Jon starts to hatch a plan. "I just need to get over those mountains. It will only take me a day." But then he realized that he didn't know if there were any villages around.
@@ -35,9 +41,7 @@ Six hours later, he is tired and hungry. His feet hurt, but the top of the mount
 
 He feels his stomach sink. "Why did I climb this stupid mountain!" he says angrily. He sits down on the cold stone. The hiking was keeping him warm, but the night is getting cold and the wind bites at his face. "I better go down into the treeline before I freeze to death". He starts going back towards the village. He sees it down in the valley. Most of the lights are out, but there are a couple still burning.
 
-He finds a ditch next to a rocky ledge that is protected from the wind. He lies down to sleep. He'll hike back down in the morning.
-
-<He hikes back to the village>
+He finds a ditch next to a rocky ledge that is protected from the wind. He lies down to sleep. He'll hike back down in the morning. He gets some sleep, but he keeps waking up. When the sun starts to raise, he gives up trying to get more sleep and gets up despite being tired. His muscles feel a little better, so he begins his trek back to the village. After four hours of descending the mountain, he reaches the village again.
 
 ## Part 4
 Jon sits down behind a house. He leans on the white wall, hungry, sore, and demoralized. He stays there till midday. Then a shadow comes over him. "Dhere is a storm coming. Ya got a place ta go?" Jon looks up to see a white and tan cat. He's wearing an old dirty rugged shirt.

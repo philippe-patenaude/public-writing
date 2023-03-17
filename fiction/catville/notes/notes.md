@@ -121,3 +121,4 @@ Rain
 * One thing that I had in the original free write was that the town's cats are always fighting amongst themselves. I think that would add nice bits of content/story as Jon helps the villagers resolve their conflicts. What are the conflicts the villagers have?
 * What are the names of the businesses the cats run?
 * Are there stables and horses?
+* I could add more details about the hiking scene. What does he see, hear, and feel? What are his emotions. Does he make any realizations during his internal dialogue?
