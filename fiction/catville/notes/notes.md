@@ -51,8 +51,12 @@ The scenes where Jon meets the other villagers.
 * Jon meets Smudge when Bandit asks Jon to go buy firewood from the lumberjack.
 * Jon meets Bella when Bandit asks Jon to go get medicine from the apothecary.
 * Jon meets Ivy when Bandit asks Jon to go trade bread for meat and furs.
-* Jon gets turned away my Midnight (the inn keeper) for not having money and looking strange.
+* Jon gets turned away by Midnight (the inn keeper) for not having money and looking strange.
 * Jon meets Athena when he goes to collect wheat (or other grains?) for Bandit.
+
+Jon confronts McMeow and tells him that he won't steal the eggs from the villagers. This is where the climax scene happens.
+
+A scene five years in the future from the events of the book where Jon is living happily in the village (maybe he's buying his first house).
 
 ## Characters
 McMeow (real name: Rain): The crazy cat prince. He likes to give people near impossible tasks and watch as they struggle to accomplish his orders.

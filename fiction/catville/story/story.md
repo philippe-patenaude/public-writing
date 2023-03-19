@@ -44,6 +44,13 @@ He feels his stomach sink. "Why did I climb this stupid mountain!" he says angri
 He finds a ditch next to a rocky ledge that is protected from the wind. He lies down to sleep. He'll hike back down in the morning. He gets some sleep, but he keeps waking up. When the sun starts to raise, he gives up trying to get more sleep and gets up despite being tired. His muscles feel a little better, so he begins his trek back to the village. After four hours of descending the mountain, he reaches the village again.
 
 ## Part 4
+<Jon gets turned away by Midnight (the inn keeper) for not having money and looking strange.>
+
+Jon stumbles into the town. He's tired, sore, and hungry. He doesn't care if the cat people talk about him any more. He notices a sign hanging over the front door of a building. The sign has a red shirt on it. The owner opens up the shutter to the store showing a collection of shirts, pants, and dresses. It must be a clothing store. "Maybe there's a restaurant or a hotel somewhere around!" Jon thinks to himself.
+
+He walks around town looking at the street signs for beds or food. Most of the food businesses he's run into haven't opened yet. He then finds a sign with a fish on the sign. The door was open. Excited, Jon headed for the door in hopes that the business was open.
+
+## Part 5
 Jon sits down behind a house. He leans on the white wall, hungry, sore, and demoralized. He stays there till midday. Then a shadow comes over him. "Dhere is a storm coming. Ya got a place ta go?" Jon looks up to see a white and tan cat. He's wearing an old dirty rugged shirt.
 
 Jon replies "No". The cat gets a slight smile. "I'll take ya somewhere safe" he says. He pulls out an apple. "Have something to eat". Jon is starving so he takes the apple without question. He eats it in less than a minute. The cat smiles in amusement.
@@ -54,7 +61,7 @@ Jon replies "No". The cat gets a slight smile. "I'll take ya somewhere safe" he 
 
 <He gets shown around town and taught how to steal to survive. The cat thief wants to use him for something (what is that something?)>
 
-## Part 5
+## Part 6
 This time, it's going to be Jon's turn. He puts on his black cape and heads for town. It is a cloudy night, so the moon is hiding behind the clouds. Jon walks past a couple of cats walking back to their home. They are talking loudly to each other; they must be a little drunk.
 
 He finds the empty house. The old cat Eric won't be back home for another couple of hours. Now is the chance to get those eggs. Jon makes sure there's nobody around before sneaking around the house. He finds the partially open window and opens it up the rest of the way with a loud screech. Jon hopes no neighbors took notice.
@@ -72,3 +79,21 @@ He falls into the corridor. He looks up to see a silhouette ofa large cat. This 
 "Nothing difficult. You can wash the dishes and carry firewood." "I... should be able to do that" "Hood! Let's get you on your feet" says the cat. After helping Jon up, he continues "my name is Bill. People call me Bill the baker." "I'm...Jon....Just Jon."
 
 "Let's get you into bed. You look tired" he said. "Right this way" he says while leading Jon up a staircase to a bedroom on hte second floor. He gestures towards a mat on the floor.
+
+## Part 7
+<Jon meets Smudge when Bandit asks Jon to go buy firewood from the lumberjack.>
+
+## Part 8
+<Jon meets Bella when Bandit asks Jon to go get medicine from the apothecary.>
+
+## Part 9
+<Jon meets Ivy when Bandit asks Jon to go trade bread for meat and furs.>
+
+## Part 10
+<Jon meets Athena when he goes to collect wheat (or other grains?) for Bandit.>
+
+## Part 11
+<Jon confronts McMeow and tells him that he won't steal the eggs from the villagers. This is where the climax scene happens.>
+
+## Part 12
+<A scene five years in the future from the events of the book where Jon is living happily in the village (maybe he's buying his first house).>
